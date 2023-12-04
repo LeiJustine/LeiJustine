@@ -25,5 +25,5 @@ I am Lei Justine, a passionate individual with a flair for coding and expertise 
 
 ## Contact Me
 
-- **LinkedIn:** [LinkedIn Profile](linkedin.com/in/lei-justine-1a364727b)
+- **LinkedIn:** [Lei Justine](linkedin.com/in/lei-justine-1a364727b)
 - **Email:** leijustine05@gmail.com
